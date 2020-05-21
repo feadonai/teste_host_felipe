@@ -1,0 +1,1 @@
+teste primeita tentativa de conexao
